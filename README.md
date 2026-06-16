@@ -1,4 +1,4 @@
-Hi there 👋, I’m Adesewa (Sewa)
+Hi there 👋, I’m Adesewa 
 
 🎓 Pharmacology Graduate | 📊 Data Analyst | 💊 Aspiring Drug Development Specialist
 
