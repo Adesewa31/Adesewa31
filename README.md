@@ -74,7 +74,7 @@ Domain Knowledge
 
 📫 Connect With Me
 
-* 💼 LinkedIn: 
+* 💼 LinkedIn: https://www.linkedin.com/in/adesewa-abiodun-a1631a237?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 * 📧 Email: beautyabiodun312002@gmail.com
 
 ⸻
